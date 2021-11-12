@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @laurapla
-- 👀 I’m interested in anything related to space, aerospace engineering, rockets, airplanes and climbing
+- 👀 I’m interested in anything related to airplanes, space and climbing
 - 🌱 I’m currently learning about life
 <!---
 - 💞️ I’m looking to collaborate on ...
