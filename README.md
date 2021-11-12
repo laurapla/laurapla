@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @laurapla
 - 👀 I’m interested in anything related to airplanes, space and climbing
-- 🌱 I’m currently learning about life
+- 🌱 I’m currently learning about everything I can
 <!---
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
